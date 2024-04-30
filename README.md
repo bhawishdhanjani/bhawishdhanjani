@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **bhawishdhanjanii@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Et0ta8zGp7gJnSPhhitztOenmqJ1tqZ1/view?usp=sharing](https://drive.google.com/file/d/1Et0ta8zGp7gJnSPhhitztOenmqJ1tqZ1/view?usp=sharing)
+- 📄 Know about my experiences by checking my [CV](https://drive.google.com/file/d/1aMsUxGMf9xTD2vbOMkCF-mhep1ThEZxf/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
